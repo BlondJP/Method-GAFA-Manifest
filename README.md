@@ -1,0 +1,1 @@
+# Method-GAFA-Manifest
